@@ -8,3 +8,4 @@ Estou no GitHub principalmente para seguir as ações:
 
   Para entrar em contato comigo acesse:
   @manda_dsm 📸
+  ![](https://th.bing.com/th/id/R.5a2a8fb9e5818b143f468514500f0a3e?rik=qMXfd6L3ikRuxw&pid=ImgRaw&r=0)
